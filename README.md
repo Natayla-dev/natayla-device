@@ -1,0 +1,1 @@
+# natayla-device
